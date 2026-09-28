@@ -1,0 +1,1 @@
+# Speccy-Portable-Full-Version-Unlocked
